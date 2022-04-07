@@ -1,0 +1,1 @@
+# girilenSayidanKucuk4v5-inKuvvetleriniBulanProgram
